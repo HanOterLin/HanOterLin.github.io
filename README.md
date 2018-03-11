@@ -1,2 +1,1 @@
-# HanOterLin.github.io
-github.io
+# 我的精神家园
